@@ -1,1 +1,1 @@
-# ProiectSincretic
+Am inceput
